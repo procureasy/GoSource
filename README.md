@@ -1,0 +1,2 @@
+# GoSource
+Supply Chain consulting providing cost effective Procurement solution &amp; sourcing platform which transforms Source to Pay (S2P/ P2P) process in to a Risk free function / Profit center. Aimed at adding value through our platform which is integrated with over 100 IT &amp; Facility service providers &amp; partnered with OEMs to provide exceptional services, mitigating risk &amp; elevate ROI.
